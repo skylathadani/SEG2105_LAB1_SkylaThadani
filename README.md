@@ -1,1 +1,0 @@
-# SEG2105_LAB1_SkylaThadani
